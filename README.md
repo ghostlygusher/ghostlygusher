@@ -2,14 +2,14 @@
  
 ![](https://64.media.tumblr.com/5c4c4f3cd41713c3de8354f7b63faabb/9fe7cd98f334bbb3-47/s400x600/77988e0dfe18bef9078688958986ae401fb679a7.gifv#center)
 
-mike ㅤ![](https://64.media.tumblr.com/ccc62c6cc0784cfd7d6f07f677de7ae8/94296eaadd87934e-46/s100x200/3c6244758b4e547af641da1465efe390c0d32639.gifv)ㅤ17
+Adam ㅤ![](https://64.media.tumblr.com/ccc62c6cc0784cfd7d6f07f677de7ae8/94296eaadd87934e-46/s100x200/3c6244758b4e547af641da1465efe390c0d32639.gifv)ㅤ18
 
-he  him .... byler / stonathan freak
+he  him .... audhd did freak
 
 almost always off tab w2i !!  c + h always welcome , even if not specifically in my name!!
 
 
-dont forget to sign my [ata](https://mikeywheels.atabook.org) or [strawpage](https://mikeywheels.straw.page) ![](https://64.media.tumblr.com/fb1f5f513de03b56e93063082844ad3e/e60b3e1fa5b10de4-3d/s75x75_c1/07f68ab2559dad694afee8cd75a0eca2759b1fdd.gifv)
+dont forget to sign my [ata](https://ghostlygusher.atabook.org)
 
 ㅤ
 
