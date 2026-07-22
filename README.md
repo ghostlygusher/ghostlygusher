@@ -4,9 +4,11 @@
 
 Adam ㅤ![](https://64.media.tumblr.com/9a81162507a03646f5acd34caa597793/1f3af4f839e78397-62/s75x75_c1/5fc6dc7fdfcd26e3bebf13f7ca902ccbc1db7dc4.gifv)ㅤ18
 
-he  him .... audhd did freak
+he  him .... plural
 
 almost always off tab w2i !!  c + h always welcome , even if not specifically in my name!!
+
+i block freely , and don't remember names well.
 
 
 dont forget to sign my [ata](https://ghostlygusher.atabook.org)
