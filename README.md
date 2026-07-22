@@ -2,7 +2,7 @@
  
 ![](https://i.pinimg.com/originals/0e/60/b0/0e60b03e734031d1073f9bee13052854.gif#center)
 
-Adam ㅤ![](https://64.media.tumblr.com/ccc62c6cc0784cfd7d6f07f677de7ae8/94296eaadd87934e-46/s100x200/3c6244758b4e547af641da1465efe390c0d32639.gifv)ㅤ18
+Adam ㅤ![](https://64.media.tumblr.com/9a81162507a03646f5acd34caa597793/1f3af4f839e78397-62/s75x75_c1/5fc6dc7fdfcd26e3bebf13f7ca902ccbc1db7dc4.gifv)ㅤ18
 
 he  him .... audhd did freak
 
