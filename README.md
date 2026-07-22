@@ -1,6 +1,6 @@
 <div align="center">
  
-![](https://64.media.tumblr.com/5c4c4f3cd41713c3de8354f7b63faabb/9fe7cd98f334bbb3-47/s400x600/77988e0dfe18bef9078688958986ae401fb679a7.gifv#center)
+![]((https://i.pinimg.com/originals/0e/60/b0/0e60b03e734031d1073f9bee13052854.gif)#center)
 
 Adam ㅤ![](https://64.media.tumblr.com/ccc62c6cc0784cfd7d6f07f677de7ae8/94296eaadd87934e-46/s100x200/3c6244758b4e547af641da1465efe390c0d32639.gifv)ㅤ18
 
