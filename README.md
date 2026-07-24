@@ -11,7 +11,7 @@ almost always off tab w2i !!  c + h always welcome , even if not specifically in
 i block freely , and don't remember names well.
 
 
-dont forget to sign my [ata](https://ghostlygusher.atabook.org)
+dont forget to sign my [ata](https://ghostlygusher.atabook.org) or [strawpage!](https://ghostlygusher.straw.page)
 
 ㅤ
 
