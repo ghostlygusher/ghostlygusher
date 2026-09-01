@@ -2,7 +2,7 @@
  
 ![](https://i.pinimg.com/originals/45/da/29/45da2962c82d92c7d1e1b045d73507af.gif#center)
 
-Adam ㅤ![](https://64.media.tumblr.com/9a81162507a03646f5acd34caa597793/1f3af4f839e78397-62/s75x75_c1/5fc6dc7fdfcd26e3bebf13f7ca902ccbc1db7dc4.gifv)ㅤ18
+Morty ㅤ![](https://64.media.tumblr.com/9a81162507a03646f5acd34caa597793/1f3af4f839e78397-62/s75x75_c1/5fc6dc7fdfcd26e3bebf13f7ca902ccbc1db7dc4.gifv)ㅤ18
 
 he  him .... plural
 
