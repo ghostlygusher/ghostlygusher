@@ -8,7 +8,7 @@ he  him .... plural
 
 almost always off tab w2i !!  c + h always welcome , even if not specifically in my name!!
 
-i block freely , and don't remember names well.
+i block freely , though if you're pro/darkship dni
 
 
 feel free to sign my [ata](https://ghostlygusher.atabook.org) or [strawpage!](https://ghostlygusher.straw.page)
