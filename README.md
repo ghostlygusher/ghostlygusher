@@ -2,7 +2,7 @@
  
 ![](https://64.media.tumblr.com/e0a66bb57a35e2fedfe52583589ad2fe/111b053e4520d1fe-ab/s400x600/985b1e0cd581b4dd8592826c66836dc0caab2947.gifv)
 
-f , smith/evil morty + red/roman ㅤ![](https://64.media.tumblr.com/69456ef342a01a9c9f8cfa7acd8497bb/898f5fb257c8ed42-e0/s250x400/bc3581e7ad01e9e86cc31b2643f2f86eb284b6c6.gifv)ㅤ18 bodily
+f , ask for front ㅤ![](https://64.media.tumblr.com/69456ef342a01a9c9f8cfa7acd8497bb/898f5fb257c8ed42-e0/s250x400/bc3581e7ad01e9e86cc31b2643f2f86eb284b6c6.gifv)ㅤ18 bodily
 
 he  him .... plural
 
