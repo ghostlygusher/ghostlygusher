@@ -1,6 +1,6 @@
 <div align="center">
  
-![](https://i.pinimg.com/originals/45/da/29/45da2962c82d92c7d1e1b045d73507af.gif#center)
+![](https://64.media.tumblr.com/e8457294311e02dca8b26bb452319e26/9b414049cecf6ddb-d5/s540x810/64625ebe4d276aa571c009abca76928c800d5703.gifv)
 
 f , smith/evil morty + red/roman ㅤ![](https://64.media.tumblr.com/69456ef342a01a9c9f8cfa7acd8497bb/898f5fb257c8ed42-e0/s250x400/bc3581e7ad01e9e86cc31b2643f2f86eb284b6c6.gifv)ㅤ18 bodily
 
